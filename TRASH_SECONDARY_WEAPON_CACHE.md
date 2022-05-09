@@ -1,0 +1,1 @@
+Your searching for loot left you somewhat disapointed. You found a cache for secondary weapons of, lets go with underwelhimg, quality. You should still be able to fashion something out of these pieces.
