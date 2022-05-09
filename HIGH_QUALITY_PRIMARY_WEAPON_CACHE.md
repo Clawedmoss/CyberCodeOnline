@@ -1,0 +1,1 @@
+Stumbling around after your battle, you trip over a large box. You quickly open the cache to see various high quality parts for primary weapons. With a skip in your step you haul this newly aquired cache back to the printer.
