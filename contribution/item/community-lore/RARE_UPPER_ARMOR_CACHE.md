@@ -1,0 +1,1 @@
+You come across a large box labled as "rare upper armor cache". You pry open the lid to see various peices of armour plating that and several other rarer materials used in armour peices that, with the help of a printer, should be able to create some quality gear for your goals.
